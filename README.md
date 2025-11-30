@@ -1,1 +1,1 @@
-👉 [Vizitează eufoniastore.ro](https://eufoniastore.ro)
+[Vizitează eufoniastore.ro](https://eufoniastore.ro)
